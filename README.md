@@ -3,7 +3,6 @@
 🎯 **Cyber Security Aspirant | Graphic Designer | Tech Enthusiast**
 
 ---
-
 ## 🧑‍💻 About Me
 
 Motivated IT fresher with a passion for **cybersecurity**.  
